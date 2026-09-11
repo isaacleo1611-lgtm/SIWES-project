@@ -1,2 +1,2 @@
 # SWIES-project
-My Mroject and practice as a SIWES student @ BUCODel_BU
+My Project and practice as a SIWES student @ BUCODel_BU Babcock University Ilisan Remo Ogun state 
